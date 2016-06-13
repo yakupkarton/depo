@@ -1,0 +1,2 @@
+# depo
+daha iyi olabilirdi
